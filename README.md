@@ -1,6 +1,6 @@
 # villain
 
-Looking for cheating teammates, contact me via discord villain#5466
+For  busines partnership villain#5466
 
 
 
